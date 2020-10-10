@@ -1,3 +1,9 @@
+For your information.
+
+This was coded by scriptmaster Sheriff, with some photo help from Bharat (test.jpg) https://github.com/scriptmaster
+
+So, STFU and stop your doubts.
+
 Jigsaw Puzzle game - Facebook 
 ========================
 
